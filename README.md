@@ -2,3 +2,5 @@
 just trying to use this damn software
 
 this is the master edits readme
+
+I'm gonna beat you retarded
